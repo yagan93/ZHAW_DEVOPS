@@ -1,1 +1,2 @@
 Yves Kaufmann
+Dario Burch
